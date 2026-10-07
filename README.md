@@ -1,0 +1,1 @@
+# AyrikMatematik2.HaftaOdevi
